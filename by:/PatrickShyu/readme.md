@@ -1,0 +1,1 @@
+- [Get Out of Tech. IT'S OVER.](https://youtu.be/RweoklWbLsw)
